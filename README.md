@@ -1,1 +1,4 @@
-# MTS
+Mathematical Tools for Students (MTS)
+THE FOUNDATION SCHOOL
+PROJECT
+ACADEMIC YEAR 2023 - 2024
